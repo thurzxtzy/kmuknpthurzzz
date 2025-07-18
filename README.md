@@ -1,2 +1,0 @@
-# kmuknpthurzzz
-kmu siapa?
